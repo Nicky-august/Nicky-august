@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Nicky-august
+- 👀 I’m interested in astronomy and reading books
+- 🌱 I’m currently in 8th grade (minor)
+- 💞️ I’m looking to collaborate on Astrocode
+- 📫 How to reach me vero.santana.castro@gmail.com
+- 😄 Pronouns: They/Them please respect
+- ⚡ Fun fact: My birthday is february 28, and i am Puerto Rican.
